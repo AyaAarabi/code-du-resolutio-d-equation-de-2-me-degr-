@@ -1,0 +1,1 @@
+# code-du-resolutio-d-equation-de-2-me-degr-
